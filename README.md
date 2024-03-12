@@ -1,8 +1,7 @@
-- 👋 Hi, I’m @BrittoAlex
+- 👋 Hi, I’m BrittoAlex
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Visual Basic  
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 
+- 📫 How to reach me insta- britto._.alex
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: 
 
