@@ -1,4 +1,4 @@
-- 👋 Hi, I’m BrittoAlex
+- 👋 Hi, I’m Britto Alex
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Visual Basic  
 - 📫 How to reach me insta- britto._.alex
